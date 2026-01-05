@@ -5,7 +5,7 @@ Ingredients
 * 1 large fennel bulb, preferably with lots of fronds.
 * 1 large bunch kale.
 * 1kg Sweet Italian Sausage
-* 9c Chicken Broth
+* 8c Chicken Broth
 
 
 Instructions
