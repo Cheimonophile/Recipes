@@ -1,4 +1,4 @@
-# Sausage Kale Soup
+
 
 Ingredients
 * 500g Celery Root
