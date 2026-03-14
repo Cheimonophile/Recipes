@@ -19,3 +19,4 @@ Instructions
 
 Next Time:
 - Use less turmeric maybe.
+- Use Half as much Sambhar Masala, and all chicken broth.  Basically, make chicken soup with Sambhar flavoring.
