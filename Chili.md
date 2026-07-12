@@ -11,7 +11,7 @@ Chili Paste
 - 20g Dried Ancho Chili
 - 20g Dried Guajillo Chili
 - 20g Dried Pasilla Chili
-- 3 cups beef broth
+- 3 cups Beef Broth
 
 Chili
 - 500g Chorizo
@@ -36,7 +36,7 @@ Chili Paste
 Chili
 1. Dice onions and garlic
 2. Sauté chorizo in some oil in the dutch oven until cooked
-	- Make sure the chorizo is ground up as finely
+	- Make sure the chorizo is ground up as finely as possible
 3. Add onions and garlic to chorizo and sauté until onion is soft
 4. Add spices and cook 2 minutes to bloom
 	- Chili Flakes
@@ -44,13 +44,13 @@ Chili
 	- Cumin
 	- Cocoa Powder
 5. Deglaze with water
-6. Add beans and pork shoulder, and enough of the bean water to mostly cover the pork
+6. Add beans and pork shank, and enough of the bean water to mostly cover the pork
 7. Put into the oven at 300°F until the pork is fall-off-the-bone tender.  
 	1. Stir and flip the pork every 30-40 minutes.
 8. Take the pork shank out and discard the bone and skin.
 9. Shred the pork meat and add it back to the pot.
 10. Put into the oven at 300°F until the desired thickness is reached.
-	1. Continue to stir ever 30-40 minutes.
+	1. Continue to stir every 30-40 minutes.
 
 ## Suggestions
 
@@ -60,7 +60,7 @@ Suggestions
 - Add the sugar, worcestershire sauce, and other stuff from the end of the video.
 
 Notes
-- DON'T toast the dried chili peppers.  I tried that and the burned FAST.
+- DON'T toast the dried chili peppers.  I tried that and they burned FAST.
 
 ## Inspirations
 
