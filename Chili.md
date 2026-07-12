@@ -20,6 +20,7 @@ Chili
 - 20g Paprika
 - 12g Cumin
 - 10g Cocoa Powder
+
 ## Instructions
 
 Beans
