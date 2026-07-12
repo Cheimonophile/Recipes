@@ -26,7 +26,7 @@ Chili
 Beans
 1. Dice 2 red onions
 2. (Optional) Chop some garlic cloves
-3. Boil the beans until desired tenderness
+3. Simmer the beans with the onions, garlic, and other desired aromatics until desired tenderness
 4. Strain the beans, but save the liquid for the chili.
 
 Chili Paste
