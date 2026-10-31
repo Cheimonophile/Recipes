@@ -56,7 +56,7 @@
 
 ## Suggestions
 
-### Suggestions
+- Double the roux amount.  Was too thin this time.
 
 ### Notes
 
