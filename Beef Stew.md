@@ -52,7 +52,7 @@
 8. Cook in the oven at 300°F with the lid off, stirring every 30 mins, for about an hour.
 	- There should be enough **Water** that it almost but doesn't quite cover the veggies and **Beef**.  They need to stay partially above **Water** level to brown.
 9. Add the **Rutabaga**, and add enough **Water** to make sure the vegetables and **Beef** are not quite covered, same as before.
-10. Cook in the oven at 300°F, stirring every 30 mins, until the **Beef** is fall-apart tender and the **Rutabaga** and **Carrots** are tender as well.
+10. Cook in the oven at 350°F, stirring every 30 mins, until the **Beef** is fall-apart tender and the **Rutabaga** and **Carrots** are tender as well.
 
 ## Suggestions
 
