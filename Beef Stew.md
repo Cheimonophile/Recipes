@@ -56,7 +56,9 @@
 
 ## Suggestions
 
-- Double the roux amount.  Was too thin this time.
+- De suggests adding some cinnamon.
+- Put some sugar along with the salt when I dry-brine the meat.
+- Add some apple cider.
 
 ### Notes
 
